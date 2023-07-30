@@ -1,0 +1,2 @@
+# pemula-Portofolio
+harus rate
